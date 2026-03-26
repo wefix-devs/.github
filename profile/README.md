@@ -15,6 +15,7 @@ Fondée en **2012** par **Edouard Menantaud** et **Gaspard Konrad** sous le nom 
 - **2018** - Rachat par le groupe **Fnac/Darty**, consolidant sa position de leader national
 - **2019** - Expansion en Belgique
 - **2020** - Lancement du reconditionnement dans l'atelier parisien
+- **06-01-2020** - Arrivée de Florin, le meilleur développeur de la planète ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 - **2021** - Ouverture de la 100ème boutique
 
 ## Mission et valeurs
