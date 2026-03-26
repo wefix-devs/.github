@@ -17,6 +17,7 @@ Fondée en **2012** par **Edouard Menantaud** et **Gaspard Konrad** sous le nom 
 - **2020** - Lancement du reconditionnement dans l'atelier parisien
 - **06-01-2020** - Arrivée de Florin, le meilleur développeur de la planète ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 - **2021** - Ouverture de la 100ème boutique
+- **27-03-2026** - Départ de Florin, le meilleur développeur de la planète ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 
 ## Mission et valeurs
 
